@@ -1,1 +1,0 @@
-# Lb_7_Voldyrev
